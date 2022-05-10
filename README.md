@@ -1,2 +1,2 @@
 ﻿# Junior Android Developer
-﻿# Stanislav +79655579555
+   Stanislav +79655579555
